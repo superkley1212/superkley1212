@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @superkley1212
-- 👀 I’m interested in ...
+- 👀 I’m interested in dota2, music, sports
 - 🌱 I’m currently learning python
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me: discord - Polina228#5848; 
