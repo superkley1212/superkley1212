@@ -2,7 +2,7 @@
 - 👀 I’m interested in dota2, music, sports
 - 🌱 I’m currently learning python
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me: discord - Polina228#5848; 
+- 📫 How to reach me: discord - polina228; 
 
 <!---
 superkley1212/superkley1212 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
